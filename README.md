@@ -5,6 +5,5 @@
 ### Faz o pix ai 
 
 
-![image](https://github.com/yukizinnho/yukizinnho/assets/135331588/5cb5afdd-990b-4b64-b231-fd6aa075f2cc)
-
+https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Flily-gif-20414095&psig=AOvVaw2AxQ79_otKTtc1BkWkex4h&ust=1687002635846000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCIDFw9ncx_8CFQAAAAAdAAAAABBc
 
