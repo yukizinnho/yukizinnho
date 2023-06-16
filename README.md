@@ -5,5 +5,4 @@
 ### Faz o pix ai 
 
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Flily-gif-20414095&psig=AOvVaw2AxQ79_otKTtc1BkWkex4h&ust=1687002635846000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCIDFw9ncx_8CFQAAAAAdAAAAABBc
-
+![Uploading image.png…]()
